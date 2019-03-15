@@ -101,6 +101,6 @@ Last, but not least, names of the proud contributors please!
 | Emma Matsubara | matsoob | - | https://www.linkedin.com/in/emma-matsubara-094003b6/ | - |
 | Jennifer N | jennlew | @jen_onl | https://www.linkedin.com/in/jennlewedum/ | - | 
 | Yanan Liu | - | - | https://www.linkedin.com/in/yanan-liu-0ab2873b/ | yy.yanan@gmail.com | 
-| Kara de la Marck | MarckK | KaraMarck | karadelamarck@gmail.com | 
+| Kara de la Marck | MarckK | @KaraMarck | karadelamarck@gmail.com | 
 | Frankie Crouch | - | - | - | - | 
 | Holly Smith | - | - | https://www.linkedin.com/in/holly-smith-63201424/ | - | 
